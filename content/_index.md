@@ -1,6 +1,6 @@
 +++
 title = "Jess Illingworth"
-tagline = "Singer. Songwriter. Cornwall."
+tagline = "Singer / Songwriter"
 +++
 
 Jess Illingworth is a singer songwriter from South East Cornwall who writes songs in a folk-pop style. Jess’ sound is focused on crystal clear vocals following catchy melodies, interwoven with creative harmonies and acoustic guitar drives the overall sound. Jess is influenced by Frank Turner’s songwriting and ability to tell a story through music as well as the blend of the folk and pop genres in music by Maisie Peters and Gabrielle Aplin.
