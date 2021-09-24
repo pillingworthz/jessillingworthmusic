@@ -1,5 +1,5 @@
 # Site settings
-baseURL = "https://pillingworthz.github.io/jessillingworthmusic"
+baseURL = "https://jessillingworth.co.uk"
 languageCode = "en-GB"
 title = "Jess Illingworth Music"
 theme = "hugo-split-theme"
