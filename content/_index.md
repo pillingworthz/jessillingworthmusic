@@ -11,6 +11,8 @@ Jess was chosen to play at Boardmasters festival from 2014-2018 and played pub g
 
 ## Upcoming Events
 
++ Mon 27th September 2021 7:50pm - Showcase at the Three Crowns, Barbican, Plymouth.
++ Tue 28th September 2021 8:40pm - Showcase at the Three Crowns, Barbican, Plymouth.
 + Sat 30th October 2021 - Support for Haunt the Woods @ [The Junction](https://www.facebook.com/mutleyjunction/), Mutley Plain, Plymouth.
 
 ## Latest News
