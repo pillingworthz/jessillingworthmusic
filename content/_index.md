@@ -22,4 +22,5 @@ Jess was chosen to play at Boardmasters festival from 2014-2018 and played pub g
 
 ## Latest News
 
-+ Oct 2021 - Recording at [Cube Recording](https://cuberecording.com/). New single out soon!
++ New single "Nice Girl" out on all digital platforms on Friday 15th October 2021.
++ Oct/Nov 2021 - Recording at [Cube Recording](https://cuberecording.com/). New single out soon!
