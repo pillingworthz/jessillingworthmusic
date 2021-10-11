@@ -11,9 +11,14 @@ Jess was chosen to play at Boardmasters festival from 2014-2018 and played pub g
 
 ## Upcoming Events
 
-+ Mon 27th September 2021 7:50pm - Showcase at the Three Crowns, Barbican, Plymouth.
-+ Tue 28th September 2021 8:40pm - Showcase at the Three Crowns, Barbican, Plymouth.
-+ Sat 30th October 2021 - Support for Haunt the Woods @ [The Junction](https://www.facebook.com/mutleyjunction/), Mutley Plain, Plymouth.
++ Thu 14th October 2021 7:00pm - Acoustic Academy at the Three Crowns, Barbican, Plymouth.
++ Sat 30th October 2021 - Support for Haunt the Woods @ [The Junction](https://www.facebook.com/mutleyjunction/), Mutley Plain, Plymouth. [(Tickets)](https://www.seetickets.com/event/haunt-the-woods/the-junction/2025405?src=jessillingworth)
++ Wed 10th November 2021 7:00pm - Cafe Acoustica at the B-Bar, Barbican, Plymouth.
+
+## Past Events
+
++ Mon 27th September 2021 7:50pm - Acoustic Academy at the Three Crowns, Barbican, Plymouth.
++ Thu 7th October 2021 7:00pm - Acoustic Academy at the Three Crowns, Barbican, Plymouth.
 
 ## Latest News
 
