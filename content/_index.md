@@ -11,7 +11,7 @@ Jess was chosen to play at Boardmasters festival from 2014-2018 and played pub g
 
 ## Upcoming Events
 
-+ Fri 17th February 2023 -Bar, Barbican, Plymouth.
++ Fri 17th February 2023 B-Bar, Barbican, Plymouth.
 
 ## Past Events
 
