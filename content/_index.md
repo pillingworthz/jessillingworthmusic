@@ -11,16 +11,24 @@ Jess was chosen to play at Boardmasters festival from 2014-2018 and played pub g
 
 ## Upcoming Events
 
-+ Thu 14th October 2021 7:00pm - Acoustic Academy at the Three Crowns, Barbican, Plymouth.
-+ Sat 30th October 2021 - Support for Haunt the Woods @ [The Junction](https://www.facebook.com/mutleyjunction/), Mutley Plain, Plymouth. [(Tickets)](https://www.seetickets.com/event/haunt-the-woods/the-junction/2025405?src=jessillingworth)
-+ Wed 10th November 2021 7:00pm - Cafe Acoustica at the B-Bar, Barbican, Plymouth.
++ Fri 17th February 2023 -Bar, Barbican, Plymouth.
 
 ## Past Events
 
-+ Mon 27th September 2021 7:50pm - Acoustic Academy at the Three Crowns, Barbican, Plymouth.
++ Wed 10th November 2021 7:00pm - Cafe Acoustica at the B-Bar, Barbican, Plymouth.
++ Sat 30th October 2021 - Support for Haunt the Woods @ [The Junction](https://www.facebook.com/mutleyjunction/), Mutley Plain, Plymouth. [(Tickets)](https://www.seetickets.com/event/haunt-the-woods/the-junction/2025405?src=jessillingworth)
++ Thu 14th October 2021 7:00pm - Acoustic Academy at the Three Crowns, Barbican, Plymouth.
 + Thu 7th October 2021 7:00pm - Acoustic Academy at the Three Crowns, Barbican, Plymouth.
++ Mon 27th September 2021 7:50pm - Acoustic Academy at the Three Crowns, Barbican, Plymouth.
+
 
 ## Latest News
 
++ Feb 2023 - New music out soon. Rcording at [Cube Recording](https://cuberecording.com/). New single out soon!
++ New single "Right PLace, Wrong Time" out Spring/Summer 2023.
+
+## Past News
+
++ New single "Stuck On You" out on all digital platforms January 2022.
++ New single "Wires Crossed" out on all digital platforms December 2021.
 + New single "Nice Girl" out on all digital platforms on Friday 15th October 2021.
-+ Oct/Nov 2021 - Recording at [Cube Recording](https://cuberecording.com/). New single out soon!
